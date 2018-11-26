@@ -14,3 +14,6 @@
 ## After processing images
 
 ![Screenshot](https://i.imgur.com/yBmL1Q6.jpg)
+
+## Instagram Sizes Infographic & Templates
+![Instagram sizes](https://dustn.tv/free-resources/instagram-sizes-infographic.jpg)
